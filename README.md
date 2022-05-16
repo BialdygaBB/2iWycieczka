@@ -6,6 +6,7 @@
 -Spływ pontonem (niezapomniane emocje)
 -Wygraliśmy w gałe z pierwszakami
 -Spiewanie przy ognisku
+-**Pyszny krupniok z ogniska mmmm**
 
 5 rzeczy które mi sie nie podobały:
 -Za małe szklanki na stołówce
